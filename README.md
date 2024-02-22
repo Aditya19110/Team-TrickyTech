@@ -1,6 +1,6 @@
 🌿 Explore Eco Connect: Unveiling the Intricacies with Tricky Tech's Ingenious Code & APK Duo! 📲✨
 
-Hello [Recipient],
+Hello,
 
 Exciting times ahead! We're thrilled to introduce you to Eco Connect, our innovative mobile application, in collaboration with Tricky Tech. Let's embark on a journey to discover the brilliance behind our creation! 🌱🚀
 
